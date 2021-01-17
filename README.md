@@ -1,3 +1,1 @@
-```
-diganti dulu ya slurd jgn langsung upload, id aplikasine sama ntar 🤏
-```
+Mahesa Bayu Baihaqi - 18.12.0777
